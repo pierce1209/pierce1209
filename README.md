@@ -1,11 +1,11 @@
-## Hi there 👋
-#I'm currently trying to bypass school app restrictions so I can load a proxy link dispenser onto my school computer because I want to get better. Because I'm bad.
-#I'm currently learning JS and practicing Python because my three collective brain cells can think at all.
-#I'm looking for help with figuring out if im good at programming or not for my age it's so confusing help
-#How to reach me: ohiosigmagyattrizzler2938@gmail.com
-#Pronouns: He/He cause I'll never be him🤫🧏‍♂️
-#Gamer Tag: Doggycantaim
-#Fun fact: I've been banned from the Interstellar Discord 10 times and counting.
+## I will buy brain cells because i need 
+I'm currently trying to bypass school app restrictions so I can load a proxy link dispenser onto my school computer because I want to get better. Because I'm bad.
+I'm currently learning JS and practicing Python because my three collective brain cells can think at all.
+I'm looking for help with figuring out if im good at programming or not for my age it's so confusing help
+How to reach me: ohiosigmagyattrizzler2938@gmail.com
+Pronouns: He/He cause I'll never be him🤫🧏‍♂️
+Gamer Tag: Doggycantaim
+Fun fact: I've been banned from the Interstellar Discord 10 times and counting.
 <!--
 **pierce1209/pierce1209** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
